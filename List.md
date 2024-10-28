@@ -25,6 +25,9 @@ https://share.feijipan.com/s/G8DGlUeo
 爱笔思画X_12_2_7_解锁订阅版@𝑓𝑙𝑠𝑣𝑖𝑝
 https://share.feijipan.com/s/GXDGlBhn
 
+AI网盘搜索_1.2.9纯净版
+https://share.feijipan.com/s/xvDHUfOQ
+
 ## (B)
 BV_686_0_2_9_r686_ac8c6ca_alpha_第三方增强版哔哩哔哩TV版
 https://share.feijipan.com/s/8rDGkpLb
@@ -54,6 +57,9 @@ https://share.feijipan.com/s/CiDGkKCe
 常读免费小说
 https://share.feijipan.com/s/yiDGlAbk
 
+c001apk-compose_925abdb
+https://share.feijipan.com/s/veDHAx5M
+
 ## (D)
 抖音间评论
 https://share.feijipan.com/s/wkDGksnr
@@ -81,10 +87,14 @@ Flo大姨妈经期助手
 https://share.feijipan.com/s/fTDGl2hk
 
 ## (G)
+GreenTuber第三方油管AP0.1.5.3
+https://share.feijipan.com/s/TcDHU0NI
 
 ## (H)
 Hypic_醒图国际版
 https://share.feijipan.com/s/cvDGleIo
+
+海阔视界 8.63_C5317_db53-32位和64位https://share.feijipan.com/s/9ODHU4ZB
 
 ## (I)
 Instant_Translate_瞬译_解锁高级版
@@ -106,6 +116,12 @@ https://share.feijipan.com/s/AgDGlfWi
 京淘自动助手_7_5_京东淘宝双11自动做任务工具
 https://share.feijipan.com/s/vdDGlknn
 
+节拍器_1.6.2
+https://share.feijipan.com/s/DxDHA0ps
+
+椒盐音乐v10.6.0-beta01
+https://share.feijipan.com/s/U6DHAduS
+
 ## (K)
 快影_解锁会员版
 https://share.feijipan.com/s/FkDGlhbe
@@ -117,6 +133,7 @@ https://share.feijipan.com/s/z8DGliX9
 
 karing
 https://share.feijipan.com/s/1SDGmfRC
+
 ## (L)
 LockMyPix_照片隐私保护_解锁高级版https://share.feijipan.com/s/bnDGlnvN
 
@@ -149,6 +166,9 @@ https://share.feijipan.com/s/ubDGmZqc
 欧歌电视_2_2_4_央视+卫视+地方
 https://share.feijipan.com/s/XMDGmVW1
 
+OPatch_0.0.7
+https://share.feijipan.com/s/VhDHAnhX
+
 ## (P)
 Photoroom_照片编辑_解锁专业版
 https://share.feijipan.com/s/ymDGm2qN
@@ -162,6 +182,8 @@ Player 5.0.44.1 内置线路https://share.feijipan.com/s/XWDGm9Ml
 
 PowerDirector_威力导演_14_5_2_build_2410250_解锁高级版https://share.feijipan.com/s/gaDGmvWz
 
+Pengeek_v24_10_12小米增强模块https://share.feijipan.com/s/cnDHUS1x
+
 ## (Q)
 QQ9.0.80精简去广告有防撤回版https://share.feijipan.com/s/IHDGmxiU
 
@@ -170,6 +192,14 @@ https://share.feijipan.com/s/UfDGmirc
 
 全聚合_2_0_2_内置线路_直播+点播
 https://share.feijipan.com/s/U1DGmm4W
+
+QAvatar_v1_0自动更换QQ头像模块https://share.feijipan.com/s/IKDHURw9
+
+QQ音乐v11.3.3-patched@bb_show-V2
+https://share.feijipan.com/s/tmDHAbKQ
+
+QAuxv-v1.5.4.r2492.c6cd502-universal
+https://share.feijipan.com/s/LPDHAkfm
 
 ## (R)
 Ringtone_Maker_铃声制作_1_01_62_1023_解锁专业版
@@ -188,6 +218,14 @@ SmartTube_beta_免谷歌框架_24_37_第三方增强版油管客户端TV版https
 Selfie_AI_图片编辑器v7_0_9458纯净版
 https://share.feijipan.com/s/DiDGtOcG
 
+Speedtest-Premium-5.5.0
+https://share.feijipan.com/s/QFDHACA0
+
+适配音乐v3.2.0清爽版https://share.feijipan.com/s/ZLDHAZ6c
+
+Shizuku_13.5.4.r1049.0e53409
+https://share.feijipan.com/s/WzDHApej
+
 ## (T)
 糖豆广场舞_8_4_1_解锁会员版
 https://share.feijipan.com/s/j0DGmICd
@@ -200,6 +238,9 @@ https://share.feijipan.com/s/X7DGnTIF
 
 VideoGuru_视频编辑_1_553_171_解锁专业版
 https://share.feijipan.com/s/2aDGnNzF
+
+Via6.0.0(20241021)-(国内版和谷歌版)-All
+https://share.feijipan.com/s/rgDHUicp
 
 ## (W)
 微博_14_10_1_内置猪手模块2_3_2_303版
@@ -222,6 +263,10 @@ https://share.feijipan.com/s/ewDGn1tX
 
 XPlayer_播放器_2_4_3_1_解锁高级版https://share.feijipan.com/s/icDGn8Wq
 
+嗅觉浏览器 6.63_C2153_db45-64和32位https://share.feijipan.com/s/PzDHUWys
+
+X浏览器 5.0.0_897谷歌版https://share.feijipan.com/s/0vDHUr1p
+
 ## (Y)
 易拓客源_2_7_8_0_解锁会员版
 https://share.feijipan.com/s/tIDGncoD
@@ -232,6 +277,7 @@ https://share.feijipan.com/s/tIDGncoD
 https://share.feijipan.com/s/uTDGn521
 
 ## (Z)
+
 
 ## 数字开头的
 521影视TV 1.4.1 内置线路
