@@ -173,6 +173,9 @@ Snaptube_油管下载器_7_29_1_72902701_解锁高级版https://share.feijipan.c
 
 SmartTube_beta_免谷歌框架_24_37_第三方增强版油管客户端TV版https://share.feijipan.com/s/G1DGmu2T
 
+Selfie_AI_图片编辑器v7_0_9458纯净版
+https://share.feijipan.com/s/DiDGtOcG
+
 ## (T)
 糖豆广场舞_8_4_1_解锁会员版
 https://share.feijipan.com/s/j0DGmICd
