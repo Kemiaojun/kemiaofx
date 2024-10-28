@@ -52,6 +52,9 @@ https://share.feijipan.com/s/9ODHX8O2
 
 百度地图V20.9.0纯净精简版https://share.feijipan.com/s/tsDHZodT
 
+冰箱_3.25.3 G(96678270)
+https://share.feijipan.com/s/ZaDHyKZJ
+
 ## (C)
 Clash.Verge_1.7.5_x64
 https://share.feijipan.com/s/v8DGkLYX
@@ -135,8 +138,8 @@ https://share.feijipan.com/s/DxDHA0ps
 https://share.feijipan.com/s/U6DHAduS
 
 ## (K)
-快影_解锁会员版
-https://share.feijipan.com/s/FkDGlhbe
+快影_6.64.0.664004(664004)
+https://share.feijipan.com/s/syDHzUMC
 
 酷我音乐_11.0.2.1_会员版
 https://share.feijipan.com/s/z8DGliX9
