@@ -28,6 +28,9 @@ https://share.feijipan.com/s/GXDGlBhn
 AI网盘搜索_1.2.9纯净版
 https://share.feijipan.com/s/xvDHUfOQ
 
+AdClose_2.0.9
+https://share.feijipan.com/s/GADHZze1
+
 ## (B)
 BV_686_0_2_9_r686_ac8c6ca_alpha_第三方增强版哔哩哔哩TV版
 https://share.feijipan.com/s/8rDGkpLb
@@ -47,6 +50,8 @@ https://share.feijipan.com/s/RKDGktoW
 哔哔音乐_1.0.0
 https://share.feijipan.com/s/9ODHX8O2
 
+百度地图V20.9.0纯净精简版https://share.feijipan.com/s/tsDHZodT
+
 ## (C)
 Clash.Verge_1.7.5_x64
 https://share.feijipan.com/s/v8DGkLYX
@@ -62,6 +67,8 @@ https://share.feijipan.com/s/yiDGlAbk
 
 c001apk-compose_925abdb
 https://share.feijipan.com/s/veDHAx5M
+
+初阳工具箱_3_2吃鸡辅助高级版https://share.feijipan.com/s/7RDHZW2j
 
 ## (D)
 抖音间评论
@@ -88,6 +95,8 @@ https://share.feijipan.com/s/xADGlWSF
 
 Flo大姨妈经期助手
 https://share.feijipan.com/s/fTDGl2hk
+
+FullReader_电子书阅读器v4_3_6_b336高级版https://share.feijipan.com/s/WDDHVTxq
 
 ## (G)
 GreenTuber第三方油管AP0.1.5.3
@@ -137,11 +146,17 @@ https://share.feijipan.com/s/z8DGliX9
 karing
 https://share.feijipan.com/s/1SDGmfRC
 
+可可影视_v3.2.0纯净版
+https://share.feijipan.com/s/4gDHZ3za
+
 ## (L)
 LockMyPix_照片隐私保护_解锁高级版https://share.feijipan.com/s/bnDGlnvN
 
 聆听音乐_免费听歌下歌_免费音乐下载器
 https://share.feijipan.com/s/9jDGmHU1
+
+离线文本转TTS语音工具_MultiTTS_v1_6_6_3_all
+https://share.feijipan.com/s/lfDHZa4u
 
 ## (M)
 MiFun动漫_去广告版
@@ -154,6 +169,8 @@ https://share.feijipan.com/s/iYDGmAtO
 https://share.feijipan.com/s/UDDGmBJ1
 
 猫番阅读_去广https://share.feijipan.com/s/5hDGmP2B
+
+墨迹天气 v9.0884.02高级版https://share.feijipan.com/s/HvDHZv6E
 
 ## (N)
 Nekogram_11.2.3
@@ -186,6 +203,9 @@ Player 5.0.44.1 内置线路https://share.feijipan.com/s/XWDGm9Ml
 PowerDirector_威力导演_14_5_2_build_2410250_解锁高级版https://share.feijipan.com/s/gaDGmvWz
 
 Pengeek_v24_10_12小米增强模块https://share.feijipan.com/s/cnDHUS1x
+
+Plus精简版-11.2.3.0-2127x-all
+https://share.feijipan.com/s/ITDHZtyz
 
 ## (Q)
 QQ9.0.80精简去广告有防撤回版https://share.feijipan.com/s/IHDGmxiU
@@ -229,6 +249,8 @@ https://share.feijipan.com/s/QFDHACA0
 Shizuku_13.5.4.r1049.0e53409
 https://share.feijipan.com/s/WzDHApej
 
+Soul 灵魂浏览器v1.4.42纯净版https://share.feijipan.com/s/eXDHZRj8
+
 ## (T)
 糖豆广场舞_8_4_1_解锁会员版
 https://share.feijipan.com/s/j0DGmICd
@@ -255,6 +277,8 @@ https://share.feijipan.com/s/iFDGnGhZ
 微美颜_2_3_5_解锁会员版
 https://share.feijipan.com/s/VCDGnP1T
 
+网飞猫_3.2.0纯净版https://share.feijipan.com/s/ltDHZ8g3
+
 ## (X)
 小脑斧TV_5_0_44_内置小脑斧线路_直播+点播
 https://share.feijipan.com/s/scDGnZoZ
@@ -279,8 +303,10 @@ https://share.feijipan.com/s/tIDGncoD
 一键取关通用版_1_0_1_多平台批量自动取消关注工具
 https://share.feijipan.com/s/uTDGn521
 
-## (Z)
+猿猴模块v1.1小猿口算模块https://share.feijipan.com/s/zhDHZmhP
 
+## (Z)
+指南针_1.14.5纯净版https://share.feijipan.com/s/5qDHZjLs
 
 ## 数字开头的
 521影视TV 1.4.1 内置线路
