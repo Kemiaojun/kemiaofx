@@ -44,6 +44,9 @@ https://share.feijipan.com/s/p1DGRj4X
 比漫熊_1_0_4_去广告_修复闪退版@𝑓𝑙𝑠𝑣𝑖𝑝
 https://share.feijipan.com/s/RKDGktoW
 
+哔哔音乐_1.0.0
+https://share.feijipan.com/s/9ODHX8O2
+
 ## (C)
 Clash.Verge_1.7.5_x64
 https://share.feijipan.com/s/v8DGkLYX
