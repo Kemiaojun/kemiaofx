@@ -26,8 +26,17 @@ https://share.feijipan.com/s/G8DGlUeo
 https://share.feijipan.com/s/GXDGlBhn
 
 ## (B)
-BV_686_0_2_9_r686_ac8c6ca_alpha_第三方增强版哔哩哔哩TV版@𝑓𝑙𝑠𝑣𝑖𝑝
+BV_686_0_2_9_r686_ac8c6ca_alpha_第三方增强版哔哩哔哩TV版
 https://share.feijipan.com/s/8rDGkpLb
+
+BiliHD-v1.47.1-x1.24.1@bb_show
+https://share.feijipan.com/s/rxDGRxg3
+
+Bili-v8.9.0-x1.24.1@bb_show
+https://share.feijipan.com/s/xGDGRhs0
+
+BiliPlay-v3.19.2-x1.24.1@bb_show
+https://share.feijipan.com/s/p1DGRj4X
 
 比漫熊_1_0_4_去广告_修复闪退版@𝑓𝑙𝑠𝑣𝑖𝑝
 https://share.feijipan.com/s/RKDGktoW
