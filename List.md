@@ -139,6 +139,9 @@ https://share.feijipan.com/s/UDDGmBJ1
 Nekogram_11.2.3
 https://share.feijipan.com/s/qPDGmDyx
 
+NodeVideo 6.58.0视频编辑专业版_AppModz
+https://share.feijipan.com/s/3xDGRt8A
+
 ## (O)
 OfficeSuite_办公神器_15_0_54205_build_54205_解锁高级版
 https://share.feijipan.com/s/ubDGmZqc
