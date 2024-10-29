@@ -101,6 +101,9 @@ https://share.feijipan.com/s/fTDGl2hk
 
 FullReader_电子书阅读器v4_3_6_b336高级版https://share.feijipan.com/s/WDDHVTxq
 
+福抖抖福袋助手1.669自动抢福袋轻松中iPhone
+https://share.feijipan.com/s/i1D08sMm
+
 ## (G)
 GreenTuber第三方油管AP0.1.5.3
 https://share.feijipan.com/s/TcDHU0NI
@@ -136,6 +139,8 @@ https://share.feijipan.com/s/DxDHA0ps
 
 椒盐音乐v10.6.0-beta01
 https://share.feijipan.com/s/U6DHAduS
+
+荐音_1.2.12_免费听书_去广告https://share.feijipan.com/s/9eD08pCS
 
 ## (K)
 快影_6.64.0.664004(664004)
