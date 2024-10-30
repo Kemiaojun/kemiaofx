@@ -112,7 +112,7 @@ FullReader_电子书阅读器v4_3_6_b336高级版https://share.feijipan.com/s/WD
 福抖抖福袋助手1.669自动抢福袋轻松中iPhone
 https://share.feijipan.com/s/i1D08sMm
 
-Fuck for VIP_4.5.6-release_1
+Fuck for VIP_4.5.6-release
 https://share.feijipan.com/s/8PD0zabG
 
 ## (G)
@@ -181,7 +181,7 @@ https://share.feijipan.com/s/z8DGliX9
 
 酷酷电视_央视+卫视+地方https://share.feijipan.com/s/hzDGmMBQ
 
-karing
+karing代理软件
 https://share.feijipan.com/s/1SDGmfRC
 
 可可影视_v3.2.0纯净版
@@ -278,7 +278,8 @@ https://share.feijipan.com/s/BgDGmzTs
 拾光影仓_5_0_44_1_内置拾光精选仓47条线路_直播+点播
 https://share.feijipan.com/s/YeDGmjHT
 
-Shazam_音乐雷达_14_48_0_241017_build_1404800_解锁高级版https://share.feijipan.com/s/C9DGmqLL
+Shazam_音乐雷达_14_48_0_241017_build_1404800_解锁高级版
+https://share.feijipan.com/s/C9DGmqLL
 
 Snaptube_油管下载器_7_29_1_72902701_解锁高级版https://share.feijipan.com/s/fzDGmrI1
 
