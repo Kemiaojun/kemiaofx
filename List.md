@@ -381,7 +381,7 @@ https://share.feijipan.com/s/tOD0AWQZ
 https://share.feijipan.com/s/uhD0yeFz
 
 ## 数字开头的
-小23下载辅助第三代https://share.feijipan.com/s/ZGD0zP6l
+123下载辅助第三代https://share.feijipan.com/s/ZGD0zP6l
 
 521影视TV 1.4.1 内置线路
 https://share.feijipan.com/s/6rDGnhi0
