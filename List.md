@@ -55,6 +55,9 @@ https://share.feijipan.com/s/9ODHX8O2
 冰箱_3.25.3 G(96678270)
 https://share.feijipan.com/s/ZaDHyKZJ
 
+百度输入法小米定制版10_6_123_303
+https://share.feijipan.com/s/5AD0yj8m
+
 ## (C)
 Clash.Verge_1.7.5_x64
 https://share.feijipan.com/s/v8DGkLYX
@@ -72,6 +75,11 @@ c001apk-compose_925abdb
 https://share.feijipan.com/s/veDHAx5M
 
 初阳工具箱_3_2吃鸡辅助高级版https://share.feijipan.com/s/7RDHZW2j
+
+ChatSmith_AI助手_3.9.8
+https://share.feijipan.com/s/9LD0y7Gq
+
+Code_Editor_代码编辑器v0_10_3高级版https://share.feijipan.com/s/ITD0zTnt
 
 ## (D)
 抖音间评论
@@ -104,15 +112,29 @@ FullReader_电子书阅读器v4_3_6_b336高级版https://share.feijipan.com/s/WD
 福抖抖福袋助手1.669自动抢福袋轻松中iPhone
 https://share.feijipan.com/s/i1D08sMm
 
+Fuck for VIP_4.5.6-release_1
+https://share.feijipan.com/s/8PD0zabG
+
 ## (G)
 GreenTuber第三方油管AP0.1.5.3
 https://share.feijipan.com/s/TcDHU0NI
+
+光速写作 2.0.5 专注AI写作海量素材库
+https://share.feijipan.com/s/MpD0xzko
+
+高德地图15.01去广告 去更新 车道级不限机型https://share.feijipan.com/s/EwD0zO8h
 
 ## (H)
 Hypic_醒图国际版
 https://share.feijipan.com/s/cvDGleIo
 
 海阔视界 8.63_C5317_db53-32位和64位https://share.feijipan.com/s/9ODHU4ZB
+
+HookVip-3.5.6
+https://share.feijipan.com/s/uED0zWlU
+
+HookVip-4.0.0(fix)-release
+https://share.feijipan.com/s/c6D0zQaS
 
 ## (I)
 Instant_Translate_瞬译_解锁高级版
@@ -126,6 +148,11 @@ https://share.feijipan.com/s/mPDGlwQj
 
 InShot_视频编辑_解锁专业版
 https://share.feijipan.com/s/BODGlxys
+
+Invizible_Pro__beta_ver.2.3.6_all
+https://share.feijipan.com/s/WCD0ymWB
+
+Instagram v354.2.0.47更新https://share.feijipan.com/s/ehD0yL0N
 
 ## (J)
 囧次元_免广告直接获取VIP版
@@ -142,6 +169,9 @@ https://share.feijipan.com/s/U6DHAduS
 
 荐音_1.2.12_免费听书_去广告https://share.feijipan.com/s/9eD08pCS
 
+静读天下专业版_v9.7_Mod
+https://share.feijipan.com/s/fyD0yWqD
+
 ## (K)
 快影_6.64.0.664004(664004)
 https://share.feijipan.com/s/syDHzUMC
@@ -157,6 +187,10 @@ https://share.feijipan.com/s/1SDGmfRC
 可可影视_v3.2.0纯净版
 https://share.feijipan.com/s/4gDHZ3za
 
+开发助手_8.3.0_会员版https://share.feijipan.com/s/qxD0yt4E
+
+可乐下载器 2.0.5解锁会员纯净版https://share.feijipan.com/s/cWD0zElp
+
 ## (L)
 LockMyPix_照片隐私保护_解锁高级版https://share.feijipan.com/s/bnDGlnvN
 
@@ -165,6 +199,8 @@ https://share.feijipan.com/s/9jDGmHU1
 
 离线文本转TTS语音工具_MultiTTS_v1_6_6_3_all
 https://share.feijipan.com/s/lfDHZa4u
+
+李跳跳全新的蓝色，已经整理好了有最新的规则https://share.feijipan.com/s/U3D0zM3c
 
 ## (M)
 MiFun动漫_去广告版
@@ -232,6 +268,8 @@ https://share.feijipan.com/s/tmDHAbKQ
 QAuxv-v1.5.4.r2492.c6cd502-universal
 https://share.feijipan.com/s/LPDHAkfm
 
+千本笔记3.5.1.2最好用笔记软件解锁会员版https://share.feijipan.com/s/LZD0yC2t
+
 ## (R)
 Ringtone_Maker_铃声制作_1_01_62_1023_解锁专业版
 https://share.feijipan.com/s/BgDGmzTs
@@ -259,12 +297,19 @@ https://share.feijipan.com/s/WzDHApej
 
 Soul 灵魂浏览器v1.4.42纯净版https://share.feijipan.com/s/eXDHZRj8
 
+StylishText_字体生成器_1.4.1
+https://share.feijipan.com/s/50D0yXXp
+
 ## (T)
 糖豆广场舞_8_4_1_解锁会员版
 https://share.feijipan.com/s/j0DGmICd
 
 听·下-plus_2.1.1-plus(211)
 https://share.feijipan.com/s/ouD0Uwsy
+
+通义3.17超强Ai智能体 几百种功能应有尽有https://share.feijipan.com/s/waD0yHMz
+
+Telegram_v11.2.3高级版https://share.feijipan.com/s/YqD0yIVJ
 
 ## (U)
 
@@ -290,6 +335,10 @@ https://share.feijipan.com/s/VCDGnP1T
 
 网飞猫_3.2.0纯净版https://share.feijipan.com/s/ltDHZ8g3
 
+无痛单词_2.1.0已经解锁终身会员https://share.feijipan.com/s/BJD0xsji
+
+WhatsApp v2.24.21.79更新https://share.feijipan.com/s/OgD0yhH5
+
 ## (X)
 小脑斧TV_5_0_44_内置小脑斧线路_直播+点播
 https://share.feijipan.com/s/scDGnZoZ
@@ -305,6 +354,10 @@ XPlayer_播放器_2_4_3_1_解锁高级版https://share.feijipan.com/s/icDGn8Wq
 
 X浏览器 5.0.0_897谷歌版https://share.feijipan.com/s/0vDHUr1p
 
+醒图v11.00解锁会员通杀全部版本+视频教程https://share.feijipan.com/s/JWD0y9Ur
+
+星云地球1.2.4涵盖全面地图信息解锁会员版https://share.feijipan.com/s/ZRD0zHFF
+
 ## (Y)
 易拓客源_2_7_8_0_解锁会员版
 https://share.feijipan.com/s/tIDGncoD
@@ -319,9 +372,16 @@ https://share.feijipan.com/s/uTDGn521
 宇宙工具箱_2.7.2(2720
 https://share.feijipan.com/s/tOD0AWQZ
 
+音乐下载器_无损音乐下载https://share.feijipan.com/s/dTD0xKvh
+
 ## (Z)
 指南针_1.14.5纯净版https://share.feijipan.com/s/5qDHZjLs
 
+资源大师_1.5.5
+https://share.feijipan.com/s/uhD0yeFz
+
 ## 数字开头的
+小23下载辅助第三代https://share.feijipan.com/s/ZGD0zP6l
+
 521影视TV 1.4.1 内置线路
 https://share.feijipan.com/s/6rDGnhi0
