@@ -13,8 +13,8 @@
 注5：大部分都分享在Telegram频道内，有空会同步到云盘，删除旧的和不能用的，有什么想要的可以通过tg，GitHub提出，不保证能找到，只是个分享的人，不会破解。
 
 ## (A)
-AdGuard_去广告神器_4_7_70_build_10218591_解锁高级版
-https://share.feijipan.com/s/P9DGkl8q
+AdGuard_去广告神器_4_7_76__解锁高级版
+https://share.feijipan.com/s/MDDNcjd7
 
 Adobe_Photoshop_Express_照片编辑_16_2_245_build_1910_解锁高级版
 https://share.feijipan.com/s/XSDGlEg0
@@ -30,6 +30,10 @@ https://share.feijipan.com/s/xvDHUfOQ
 
 AdClose_2.0.9
 https://share.feijipan.com/s/ruD0TfyA
+
+AG自动点击器v1.2.6高级版https://share.feijipan.com/s/y9DNbYis
+
+阿里云盘 v6.6.3 解锁本地会员版https://share.feijipan.com/s/47DNcQzB
 
 ## (B)
 BV_686_0_2_9_r686_ac8c6ca_alpha_第三方增强版哔哩哔哩TV版
@@ -90,12 +94,17 @@ https://share.feijipan.com/s/eoDGl41U
 
 Duolingo_多邻国_解锁高级版https://share.feijipan.com/s/TyDGlpm1
 
+动漫共和国_1.0.0.0
+https://share.feijipan.com/s/iqDNclfq
+
 ## (E)
 Easy_Notes_笔记便签
 https://share.feijipan.com/s/XtDGlMQl
 
 二驴下载
 https://share.feijipan.com/s/eNDGlPpR
+
+叮小跳_0_07_比李跳跳更好用_内置真实好友检测等https://share.feijipan.com/s/1qDNbDou
 
 ## (F)
 Flclash代理软件 
@@ -133,8 +142,8 @@ https://share.feijipan.com/s/cvDGleIo
 HookVip-3.5.6
 https://share.feijipan.com/s/uED0zWlU
 
-HookVip-4.0.0(fix)-release
-https://share.feijipan.com/s/c6D0zQaS
+HookVip-4.0.1-release
+https://share.feijipan.com/s/QLDNaSGs
 
 ## (I)
 Instant_Translate_瞬译_解锁高级版
@@ -172,6 +181,8 @@ https://share.feijipan.com/s/U6DHAduS
 静读天下专业版_v9.7_Mod
 https://share.feijipan.com/s/fyD0yWqD
 
+剧兔_1_0_2_9_去广告版，无广告打扰的极致追剧神器https://share.feijipan.com/s/LGDNbEjD
+
 ## (K)
 快影_6.64.0.664004(664004)
 https://share.feijipan.com/s/syDHzUMC
@@ -202,6 +213,9 @@ https://share.feijipan.com/s/lfDHZa4u
 
 李跳跳全新的蓝色，已经整理好了有最新的规则https://share.feijipan.com/s/U3D0zM3c
 
+洛雪音乐 1.6.1-beta.1
+https://share.feijipan.com/s/VnDNapoz
+
 ## (M)
 MiFun动漫_去广告版
 https://share.feijipan.com/s/E1DGlt2H
@@ -216,12 +230,26 @@ https://share.feijipan.com/s/UDDGmBJ1
 
 墨迹天气 v9.0884.02高级版https://share.feijipan.com/s/HvDHZv6E
 
+每日英语听力_11.1.5
+https://share.feijipan.com/s/JcDNc1tP
+
+暮雨直播_1_3_2_央视+卫视+地方+轮播https://share.feijipan.com/s/IwDNcePk
+
+觅音_1_41_免费听歌下歌_免费音乐下载器https://share.feijipan.com/s/5tDNc7Mi
+
 ## (N)
 Nekogram_11.2.3
 https://share.feijipan.com/s/qPDGmDyx
 
 NodeVideo 6.58.0视频编辑专业版_AppModz
 https://share.feijipan.com/s/3xDGRt8A
+
+尼卡音乐1.0.8 付费音乐免费听https://share.feijipan.com/s/8aDNaK2T
+
+奈飞工厂_8.9.6去广告https://share.feijipan.com/s/EoDNbALR
+
+NPatch_0.6.1
+https://share.feijipan.com/s/ngDNcg2y
 
 ## (O)
 OfficeSuite_办公神器_15_0_54205_build_54205_解锁高级版
@@ -232,6 +260,9 @@ https://share.feijipan.com/s/XMDGmVW1
 
 OPatch_0.0.7
 https://share.feijipan.com/s/VhDHAnhX
+
+ONPatch_0.0.7-alpha.2
+https://share.feijipan.com/s/48DNcwxt
 
 ## (P)
 Photoroom_照片编辑_解锁专业版
@@ -251,6 +282,13 @@ Pengeek_v24_10_12小米增强模块https://share.feijipan.com/s/cnDHUS1x
 Plus精简版-11.2.3.0-2127x-all
 https://share.feijipan.com/s/ITDHZtyz
 
+Python编译器v10.4.0
+https://share.feijipan.com/s/onDNaspM
+
+Prime Video影视_3.0.3高级版https://share.feijipan.com/s/frDNau3P
+
+P2P下载器 1.4.0-Plus会员解锁版https://share.feijipan.com/s/7RDNbCM7
+
 ## (Q)
 QQ9.0.80精简去广告有防撤回版https://share.feijipan.com/s/IHDGmxiU
 
@@ -269,6 +307,8 @@ QAuxv-v1.5.4.r2492.c6cd502-universal
 https://share.feijipan.com/s/LPDHAkfm
 
 千本笔记3.5.1.2最好用笔记软件解锁会员版https://share.feijipan.com/s/LZD0yC2t
+
+七星影仓V3_3_0_35_内置41条线路_直播+点播https://share.feijipan.com/s/8ODNb7wB
 
 ## (R)
 Ringtone_Maker_铃声制作_1_01_62_1023_解锁专业版
@@ -301,6 +341,11 @@ Soul 灵魂浏览器v1.4.42纯净版https://share.feijipan.com/s/eXDHZRj8
 StylishText_字体生成器_1.4.1
 https://share.feijipan.com/s/50D0yXXp
 
+瞬译 6.9.209992高级版https://share.feijipan.com/s/iUDNaqd0
+
+Spotify_8.9.86.551
+https://share.feijipan.com/s/jbDNcme1
+
 ## (T)
 糖豆广场舞_8_4_1_解锁会员版
 https://share.feijipan.com/s/j0DGmICd
@@ -311,6 +356,10 @@ https://share.feijipan.com/s/ouD0Uwsy
 通义3.17超强Ai智能体 几百种功能应有尽有https://share.feijipan.com/s/waD0yHMz
 
 Telegram_v11.2.3高级版https://share.feijipan.com/s/YqD0yIVJ
+
+Televizo_1.9.3.21电视直播专业版https://share.feijipan.com/s/W2DNanKZ
+
+塔读小说免费版_10_95_解锁会员版https://share.feijipan.com/s/AWDNba4x
 
 ## (U)
 
@@ -375,14 +424,26 @@ https://share.feijipan.com/s/tOD0AWQZ
 
 音乐下载器_无损音乐下载https://share.feijipan.com/s/dTD0xKvh
 
+YVideo_Downloader_1_0_17_3多功能下载工具https://share.feijipan.com/s/0xDNaRBS
+
+易读_24_10_17_内置了170+条书源_免登即看_漫画源https://share.feijipan.com/s/jzDNc9oc
+
+用声音写_4_4_1_语音转文字_解锁内购版https://share.feijipan.com/s/dsDNcv6T
+
+无痛单词_2_1_0_解锁会员版https://share.feijipan.com/s/dsDNcv6T
+
 ## (Z)
 指南针_1.14.5纯净版https://share.feijipan.com/s/5qDHZjLs
 
 资源大师_1.5.5
 https://share.feijipan.com/s/uhD0yeFz
 
+照片编辑器_Photo_Editor_v10_9高级版https://share.feijipan.com/s/7TDNbH6Q
+
 ## 数字开头的
 123下载辅助第三代https://share.feijipan.com/s/ZGD0zP6l
+
+360ai搜索v4.2.2多功能智能Ai软件https://share.feijipan.com/s/rTDNbded
 
 521影视TV 1.4.1 内置线路
 https://share.feijipan.com/s/6rDGnhi0
