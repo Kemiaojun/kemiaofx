@@ -4,7 +4,7 @@
 
 注1：更多内部资源请关注Telegram频道或加入Telegram群。
 
-注2：文件目前只在小飞机和123云盘分享。
+注2：文件目前只在小飞机云盘分享。
 
 注3：所有的网站都在Excel表格中，部分软件也在其中。
 
@@ -29,7 +29,7 @@ AI网盘搜索_1.2.9纯净版
 https://share.feijipan.com/s/xvDHUfOQ
 
 AdClose_2.1.1
-https://www.123684.com/s/N1NlVv-jVpod
+https://share.feijipan.com/s/AoDX9pV5
 
 AG自动点击器v1.2.6高级版https://share.feijipan.com/s/y9DNbYis
 
@@ -49,10 +49,10 @@ BiliPlay-v3.19.2-x1.24.1@bb_show
 https://share.feijipan.com/s/p1DGRj4X
 
 比漫熊_1_0_4_去广告_修复闪退版
-https://share.feijipan.com/s/RKDGktoW
+https://share.feijipan.com/s/gkDX9fSB
 
 哔哔音乐_1.0.0
-https://www.123684.com/s/N1NlVv-ATfod
+https://share.feijipan.com/s/9ODHX8O2
 
 百度地图V20.9.0纯净精简版https://share.feijipan.com/s/tsDHZodT
 
@@ -66,7 +66,7 @@ https://share.feijipan.com/s/5AD0yj8m
 https://www.123684.com/s/N1NlVv-ojpod
 
 波澜工具箱_V6.0_C68
-https://www.123684.com/s/N1NlVv-dTfod
+https://share.feijipan.com/s/2mDXvBqt
 
 ## (C)
 Clash.Verge_1.7.5_x64
@@ -346,7 +346,7 @@ P2P下载器 1.4.0-Plus会员解锁版https://share.feijipan.com/s/7RDNbCM7
 https://www.123684.com/s/N1NlVv-ajpod
 
 Pili-armeabi-1.0.25.1102
-https://www.123684.com/s/N1NlVv-mTfod
+https://share.feijipan.com/s/xSDX9LeF
 
 
 ## (Q)
