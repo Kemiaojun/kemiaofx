@@ -52,7 +52,7 @@ https://share.feijipan.com/s/p1DGRj4X
 https://share.feijipan.com/s/RKDGktoW
 
 哔哔音乐_1.0.0
-https://share.feijipan.com/s/9ODHX8O2
+https://www.123684.com/s/N1NlVv-ATfod
 
 百度地图V20.9.0纯净精简版https://share.feijipan.com/s/tsDHZodT
 
@@ -64,6 +64,9 @@ https://share.feijipan.com/s/5AD0yj8m
 
 哔哩哔哩_8.17.0
 https://www.123684.com/s/N1NlVv-ojpod
+
+波澜工具箱_V6.0_C68
+https://www.123684.com/s/N1NlVv-dTfod
 
 ## (C)
 Clash.Verge_1.7.5_x64
@@ -110,6 +113,9 @@ https://www.123684.com/s/N1NlVv-pjpod
 
 抖音v31.9.0内置双模块增强版＋底包
 https://www.123684.com/s/N1NlVv-fjpod
+
+顶点小说_1.0.5.0 Mod会员版
+https://www.123684.com/s/N1NlVv-yjpod
 
 ## (E)
 Easy_Notes_笔记便签
@@ -168,6 +174,12 @@ https://share.feijipan.com/s/QLDNaSGs
 
 HookForVip_v1_7_0获取部分软件会员模块
 https://www.123684.com/s/N1NlVv-djpod
+
+虎扑 8.0.97.09275绿化版
+https://www.123684.com/s/N1NlVv-TTfod
+
+Hermit_安卓网页转应用v27_1_7高级版
+https://www.123684.com/s/N1NlVv-fTfod
 
 ## (I)
 Instant_Translate_瞬译_解锁高级版
@@ -232,8 +244,8 @@ https://www.123684.com/s/N1NlVv-xjpod
 ## (L)
 LockMyPix_照片隐私保护_解锁高级版https://share.feijipan.com/s/bnDGlnvN
 
-聆听音乐_免费听歌下歌_免费音乐下载器
-https://share.feijipan.com/s/9jDGmHU1
+聆听音乐_1.5.7(157)
+https://www.123684.com/s/N1NlVv-QTfod
 
 离线文本转TTS语音工具_MultiTTS_v1_6_6_3_all
 https://share.feijipan.com/s/lfDHZa4u
@@ -241,7 +253,7 @@ https://share.feijipan.com/s/lfDHZa4u
 李跳跳全新的蓝色，已经整理好了有最新的规则https://share.feijipan.com/s/U3D0zM3c
 
 洛雪音乐 1.6.1-beta.1
-https://share.feijipan.com/s/VnDNapoz
+https://www.123684.com/s/N1NlVv-pTfod
 
 ## (M)
 MiFun动漫_去广告版
@@ -268,6 +280,9 @@ https://share.feijipan.com/s/JcDNc1tP
 MBGA_v1.2.1国际版B站净化
 https://www.123684.com/s/N1NlVv-Hjpod
 
+MusicFree开源音乐播放器_v0_4_3
+https://www.123684.com/s/N1NlVv-4Tfod
+
 ## (N)
 Nekogram_11.2.3
 https://share.feijipan.com/s/qPDGmDyx
@@ -284,6 +299,10 @@ https://share.feijipan.com/s/ngDNcg2y
 
 NO VIP_v1.0
 https://www.123684.com/s/N1NlVv-Ajpod
+
+nthLink_Installer_x86_6.5.7.0
+https://www.123684.com/s/N1NlVv-oTfod
+
 
 ## (O)
 OfficeSuite_办公神器_15_0_54205_build_54205_解锁高级版
@@ -326,6 +345,10 @@ P2P下载器 1.4.0-Plus会员解锁版https://share.feijipan.com/s/7RDNbCM7
 拼多多_小米15定制版_6.6.1
 https://www.123684.com/s/N1NlVv-ajpod
 
+Pili-armeabi-1.0.25.1102
+https://www.123684.com/s/N1NlVv-mTfod
+
+
 ## (Q)
 QQ9.0.80精简去广告有防撤回版https://share.feijipan.com/s/IHDGmxiU
 
@@ -347,9 +370,15 @@ https://share.feijipan.com/s/LPDHAkfm
 
 七星影仓V3_3_0_35_内置41条线路_直播+点播https://share.feijipan.com/s/8ODNb7wB
 
+全国计算机软考模拟练习程序中级_离线学习版_v4_0
+https://www.123684.com/s/N1NlVv-9Tfod
+
 ## (R)
 Ringtone_Maker_铃声制作_1_01_62_1023_解锁专业版
 https://share.feijipan.com/s/BgDGmzTs
+
+软件屏蔽器v2.18
+https://www.123684.com/s/N1NlVv-Vjpod
 
 ## (S)
 拾光影仓_5_0_44_1_内置拾光精选仓47条线路_直播+点播
@@ -381,7 +410,10 @@ https://share.feijipan.com/s/50D0yXXp
 瞬译 6.9.209992高级版https://share.feijipan.com/s/iUDNaqd0
 
 Spotify_8.9.86.551
-https://share.feijipan.com/s/jbDNcme1
+https://www.123684.com/s/N1NlVv-1Tfod
+
+搜狗输入法14_10_0_1161去广告精简优化版
+https://www.123684.com/s/N1NlVv-hTfod
 
 ## (T)
 糖豆广场舞_8_4_1_解锁会员版
@@ -396,10 +428,14 @@ Telegram_v11.2.3高级版https://share.feijipan.com/s/YqD0yIVJ
 
 Televizo_1.9.3.21电视直播专业版https://share.feijipan.com/s/W2DNanKZ
 
-塔读小说免费版_10_95_解锁会员版https://share.feijipan.com/s/AWDNba4x
+塔读小说 10.95会员版
+https://www.123684.com/s/N1NlVv-HTfod
 
 TERABOX Cloud Pro v3.36.0高级版
 https://www.123684.com/s/N1NlVv-9jpod
+
+腾讯QQ_9_7_23_29394去广告特别版
+https://www.123684.com/s/N1NlVv-vTfod
 
 ## (U)
 
@@ -441,6 +477,9 @@ https://www.123684.com/s/N1NlVv-Ejpod
 网易云音乐-荣耀定制版_1.9.31＋模块
 https://www.123684.com/s/N1NlVv-Bjpod
 
+网盘搜索器_1.2.6(27)
+https://www.123684.com/s/N1NlVv-kTfod
+
 ## (X)
 小脑斧TV_5_0_44_内置小脑斧线路_直播+点播
 https://share.feijipan.com/s/scDGnZoZ
@@ -462,6 +501,9 @@ X浏览器 5.0.0_897谷歌版https://share.feijipan.com/s/0vDHUr1p
 
 小米文档查看器WPS定制_小米15定制版_4_0_1
 https://www.123684.com/s/N1NlVv-mjpod
+
+讯飞输入法_小米15定制版_8_1_8198
+https://www.123684.com/s/N1NlVv-jjpod
 
 ## (Y)
 易拓客源_2_7_8_0_解锁会员版
@@ -494,6 +536,9 @@ YVideo_Downloader_1_0_17_3多功能下载工具https://share.feijipan.com/s/0xDN
 https://share.feijipan.com/s/uhD0yeFz
 
 照片编辑器_Photo_Editor_v10_9高级版https://share.feijipan.com/s/7TDNbH6Q
+
+智能输入法_1.12 Mod会员版
+https://www.123684.com/s/N1NlVv-3Tfod
 
 ## 数字开头的
 123下载辅助第三代https://share.feijipan.com/s/ZGD0zP6l
