@@ -63,7 +63,7 @@ https://share.feijipan.com/s/ZaDHyKZJ
 https://share.feijipan.com/s/5AD0yj8m
 
 哔哩哔哩_8.17.0
-https://www.123684.com/s/N1NlVv-ojpod
+https://share.feijipan.com/s/zuDXisp4
 
 波澜工具箱_V6.0_C68
 https://share.feijipan.com/s/2mDXvBqt
@@ -92,7 +92,7 @@ https://share.feijipan.com/s/9LD0y7Gq
 Code_Editor_代码编辑器v0_10_3高级版https://share.feijipan.com/s/ITD0zTnt
 
 纯粹直播- 1.7.5
-https://www.123684.com/s/N1NlVv-Mjpod
+https://share.feijipan.com/s/BMDXiu38
 
 ## (D)
 抖音间评论
@@ -104,18 +104,18 @@ https://share.feijipan.com/s/eoDGl41U
 Duolingo_多邻国_解锁高级版https://share.feijipan.com/s/TyDGlpm1
 
 动漫共和国_1.0.0.0去广
-https://www.123684.com/s/N1NlVv-kjpod
+https://share.feijipan.com/s/tNDXjaWo
 
 叮小跳_0_07_比李跳跳更好用_内置真实好友检测等https://share.feijipan.com/s/1qDNbDou
 
 抖音_小米15定制版_23.7.2
-https://www.123684.com/s/N1NlVv-pjpod
+https://share.feijipan.com/s/JmDXiKp1
 
 抖音v31.9.0内置双模块增强版＋底包
-https://www.123684.com/s/N1NlVv-fjpod
+https://share.feijipan.com/s/VXDXiJow
 
 顶点小说_1.0.5.0 Mod会员版
-https://www.123684.com/s/N1NlVv-yjpod
+https://share.feijipan.com/s/hiDXiI0j
 
 ## (E)
 Easy_Notes_笔记便签
@@ -125,7 +125,7 @@ https://share.feijipan.com/s/XtDGlMQl
 https://share.feijipan.com/s/eNDGlPpR
 
 exteraGram v11.1.3第三方TG
-https://www.123684.com/s/N1NlVv-vjpod
+https://share.feijipan.com/s/hUDXjU8k
 
 ## (F)
 Flclash代理软件 
@@ -146,7 +146,7 @@ Fuck for VIP_4.5.6-release
 https://share.feijipan.com/s/8PD0zabG
 
 番茄免费小说_小米15定制版_5_5_3_99
-https://www.123684.com/s/N1NlVv-Ijpod
+https://share.feijipan.com/s/cKDXjAzM
 
 ## (G)
 GreenTuber第三方油管AP0.1.5.3
@@ -158,7 +158,7 @@ https://share.feijipan.com/s/MpD0xzko
 高德地图15.01去广告 去更新 车道级不限机型https://share.feijipan.com/s/EwD0zO8h
 
 高德地图_小米15定制版_12_10_61_3049
-https://www.123684.com/s/N1NlVv-wjpod
+https://share.feijipan.com/s/MGDXjC4t
 
 ## (H)
 Hypic_醒图国际版
@@ -173,13 +173,13 @@ HookVip-4.0.1-release
 https://share.feijipan.com/s/QLDNaSGs
 
 HookForVip_v1_7_0获取部分软件会员模块
-https://www.123684.com/s/N1NlVv-djpod
+https://share.feijipan.com/s/hhDXjDdc
 
 虎扑 8.0.97.09275绿化版
-https://www.123684.com/s/N1NlVv-TTfod
+https://share.feijipan.com/s/C9DXjEWA
 
 Hermit_安卓网页转应用v27_1_7高级版
-https://www.123684.com/s/N1NlVv-fTfod
+https://share.feijipan.com/s/XIDXjFx3
 
 ## (I)
 Instant_Translate_瞬译_解锁高级版
@@ -189,7 +189,7 @@ IMDb_国外豆瓣_解锁高级版
 https://share.feijipan.com/s/LPDGlvsD
 
 iMe Direct 11.2.3
-https://www.123684.com/s/N1NlVv-hjpod
+https://share.feijipan.com/s/nHDXjGn4
 
 InShot_视频编辑_解锁专业版
 https://share.feijipan.com/s/BODGlxys
@@ -239,13 +239,13 @@ https://share.feijipan.com/s/4gDHZ3za
 可乐下载器 2.0.5解锁会员纯净版https://share.feijipan.com/s/cWD0zElp
 
 快手_小米15定制版_12.3.31.6624
-https://www.123684.com/s/N1NlVv-xjpod
+https://share.feijipan.com/s/nfDXjHnM
 
 ## (L)
 LockMyPix_照片隐私保护_解锁高级版https://share.feijipan.com/s/bnDGlnvN
 
 聆听音乐_1.5.7(157)
-https://www.123684.com/s/N1NlVv-QTfod
+https://share.feijipan.com/s/9jDGmHU1
 
 离线文本转TTS语音工具_MultiTTS_v1_6_6_3_all
 https://share.feijipan.com/s/lfDHZa4u
@@ -253,7 +253,7 @@ https://share.feijipan.com/s/lfDHZa4u
 李跳跳全新的蓝色，已经整理好了有最新的规则https://share.feijipan.com/s/U3D0zM3c
 
 洛雪音乐 1.6.1-beta.1
-https://www.123684.com/s/N1NlVv-pTfod
+https://share.feijipan.com/s/VnDNapoz
 
 ## (M)
 MiFun动漫_去广告版
@@ -266,7 +266,7 @@ https://share.feijipan.com/s/iYDGmAtO
 https://share.feijipan.com/s/UDDGmBJ1
 
 猫番阅读 V1.5.0纯净版
-https://www.123684.com/s/N1NlVv-Jjpod
+https://share.feijipan.com/s/iNDXj0Bg
 
 墨迹天气 v9.0884.02高级版https://share.feijipan.com/s/HvDHZv6E
 
@@ -278,10 +278,10 @@ https://share.feijipan.com/s/JcDNc1tP
 觅音_1_41_免费听歌下歌_免费音乐下载器https://share.feijipan.com/s/5tDNc7Mi
 
 MBGA_v1.2.1国际版B站净化
-https://www.123684.com/s/N1NlVv-Hjpod
+https://share.feijipan.com/s/6tDXjMrj
 
 MusicFree开源音乐播放器_v0_4_3
-https://www.123684.com/s/N1NlVv-4Tfod
+https://share.feijipan.com/s/4kDXjN7e
 
 ## (N)
 Nekogram_11.2.3
@@ -298,11 +298,10 @@ NPatch_0.6.1
 https://share.feijipan.com/s/ngDNcg2y
 
 NO VIP_v1.0
-https://www.123684.com/s/N1NlVv-Ajpod
+https://share.feijipan.com/s/MoDXjOb1
 
 nthLink_Installer_x86_6.5.7.0
-https://www.123684.com/s/N1NlVv-oTfod
-
+https://share.feijipan.com/s/8uDXj5i8
 
 ## (O)
 OfficeSuite_办公神器_15_0_54205_build_54205_解锁高级版
@@ -343,7 +342,7 @@ Prime Video影视_3.0.3高级版https://share.feijipan.com/s/frDNau3P
 P2P下载器 1.4.0-Plus会员解锁版https://share.feijipan.com/s/7RDNbCM7
 
 拼多多_小米15定制版_6.6.1
-https://www.123684.com/s/N1NlVv-ajpod
+https://share.feijipan.com/s/5qDXjX3J
 
 Pili-armeabi-1.0.25.1102
 https://share.feijipan.com/s/xSDX9LeF
@@ -371,14 +370,14 @@ https://share.feijipan.com/s/LPDHAkfm
 七星影仓V3_3_0_35_内置41条线路_直播+点播https://share.feijipan.com/s/8ODNb7wB
 
 全国计算机软考模拟练习程序中级_离线学习版_v4_0
-https://www.123684.com/s/N1NlVv-9Tfod
+https://share.feijipan.com/s/zoDXjY99
 
 ## (R)
 Ringtone_Maker_铃声制作_1_01_62_1023_解锁专业版
 https://share.feijipan.com/s/BgDGmzTs
 
 软件屏蔽器v2.18
-https://www.123684.com/s/N1NlVv-Vjpod
+https://share.feijipan.com/s/K3DXjZXp
 
 ## (S)
 拾光影仓_5_0_44_1_内置拾光精选仓47条线路_直播+点播
@@ -410,10 +409,10 @@ https://share.feijipan.com/s/50D0yXXp
 瞬译 6.9.209992高级版https://share.feijipan.com/s/iUDNaqd0
 
 Spotify_8.9.86.551
-https://www.123684.com/s/N1NlVv-1Tfod
+https://share.feijipan.com/s/ZkDXjWed
 
 搜狗输入法14_10_0_1161去广告精简优化版
-https://www.123684.com/s/N1NlVv-hTfod
+https://share.feijipan.com/s/7BDXj1E4
 
 ## (T)
 糖豆广场舞_8_4_1_解锁会员版
@@ -429,13 +428,13 @@ Telegram_v11.2.3高级版https://share.feijipan.com/s/YqD0yIVJ
 Televizo_1.9.3.21电视直播专业版https://share.feijipan.com/s/W2DNanKZ
 
 塔读小说 10.95会员版
-https://www.123684.com/s/N1NlVv-HTfod
+https://share.feijipan.com/s/D1DXj2Uf
 
 TERABOX Cloud Pro v3.36.0高级版
-https://www.123684.com/s/N1NlVv-9jpod
+https://share.feijipan.com/s/adDXj3ZU
 
 腾讯QQ_9_7_23_29394去广告特别版
-https://www.123684.com/s/N1NlVv-vTfod
+https://share.feijipan.com/s/qWDXjbfK
 
 ## (U)
 
@@ -450,14 +449,14 @@ Via6.0.0(20241021)-(国内版和谷歌版)-All
 https://share.feijipan.com/s/rgDHUicp
 
 v2rayNG_1.9.9_universal
-https://www.123684.com/s/N1NlVv-Qjpod
+https://share.feijipan.com/s/WzDXjctY
 
 ## (W)
 微博 v14.10.2内置模块
-https://www.123684.com/s/N1NlVv-1jpod
+https://share.feijipan.com/s/jSDXj783
 
 微博_小米15定制版_13.2.0
-https://www.123684.com/s/N1NlVv-4jpod
+https://share.feijipan.com/s/CnDXj6uZ
 
 万能钥匙_1_0_6_0_解锁会员版
 https://share.feijipan.com/s/iFDGnGhZ
@@ -472,13 +471,13 @@ https://share.feijipan.com/s/VCDGnP1T
 WhatsApp v2.24.21.79更新https://share.feijipan.com/s/OgD0yhH5
 
 万能遥控_小米15定制版_6.8.4M
-https://www.123684.com/s/N1NlVv-Ejpod
+https://share.feijipan.com/s/zCDXjv7s
 
 网易云音乐-荣耀定制版_1.9.31＋模块
-https://www.123684.com/s/N1NlVv-Bjpod
+https://share.feijipan.com/s/acDXj8KH
 
 网盘搜索器_1.2.6(27)
-https://www.123684.com/s/N1NlVv-kTfod
+https://share.feijipan.com/s/8XDXj9AX
 
 ## (X)
 小脑斧TV_5_0_44_内置小脑斧线路_直播+点播
@@ -500,10 +499,10 @@ X浏览器 5.0.0_897谷歌版https://share.feijipan.com/s/0vDHUr1p
 星云地球1.2.4涵盖全面地图信息解锁会员版https://share.feijipan.com/s/ZRD0zHFF
 
 小米文档查看器WPS定制_小米15定制版_4_0_1
-https://www.123684.com/s/N1NlVv-mjpod
+https://share.feijipan.com/s/4GDXjxOU
 
 讯飞输入法_小米15定制版_8_1_8198
-https://www.123684.com/s/N1NlVv-jjpod
+https://share.feijipan.com/s/oqDXjwtc
 
 ## (Y)
 易拓客源_2_7_8_0_解锁会员版
@@ -538,7 +537,7 @@ https://share.feijipan.com/s/uhD0yeFz
 照片编辑器_Photo_Editor_v10_9高级版https://share.feijipan.com/s/7TDNbH6Q
 
 智能输入法_1.12 Mod会员版
-https://www.123684.com/s/N1NlVv-3Tfod
+https://share.feijipan.com/s/ZSDXjfDI
 
 ## 数字开头的
 123下载辅助第三代https://share.feijipan.com/s/ZGD0zP6l
