@@ -14,7 +14,7 @@
 
 ## (A)
 AdGuard_去广告神器_4_7_76__解锁高级版
-https://share.feijipan.com/s/MDDNcjd7
+https://share.feijipan.com/s/31DYB48U
 
 Adobe_Photoshop_Express_照片编辑_16_2_245_build_1910_解锁高级版
 https://share.feijipan.com/s/XSDGlEg0
@@ -255,6 +255,9 @@ https://share.feijipan.com/s/lfDHZa4u
 洛雪音乐 1.6.1-beta.1
 https://share.feijipan.com/s/VnDNapoz
 
+蓝莓音乐_2.0
+https://share.feijipan.com/s/buDYBfpQ
+
 ## (M)
 MiFun动漫_去广告版
 https://share.feijipan.com/s/E1DGlt2H
@@ -347,7 +350,6 @@ https://share.feijipan.com/s/5qDXjX3J
 Pili-armeabi-1.0.25.1102
 https://share.feijipan.com/s/xSDX9LeF
 
-
 ## (Q)
 QQ9.0.80精简去广告有防撤回版https://share.feijipan.com/s/IHDGmxiU
 
@@ -378,6 +380,12 @@ https://share.feijipan.com/s/BgDGmzTs
 
 软件屏蔽器v2.18
 https://share.feijipan.com/s/K3DXjZXp
+
+RevoUninstaller_电脑软件强制卸载工具_修改版_5_3_2_x64
+https://share.feijipan.com/s/itDYCMc1
+
+如意直播v9.0.0电视秒播电视直播软件
+https://share.feijipan.com/s/PNDYCgKa
 
 ## (S)
 拾光影仓_5_0_44_1_内置拾光精选仓47条线路_直播+点播
@@ -413,6 +421,9 @@ https://share.feijipan.com/s/ZkDXjWed
 
 搜狗输入法14_10_0_1161去广告精简优化版
 https://share.feijipan.com/s/7BDXj1E4
+
+省心英语_4.0.5
+https://share.feijipan.com/s/o0DYBPZB
 
 ## (T)
 糖豆广场舞_8_4_1_解锁会员版
@@ -479,6 +490,9 @@ https://share.feijipan.com/s/acDXj8KH
 网盘搜索器_1.2.6(27)
 https://share.feijipan.com/s/8XDXj9AX
 
+万象小组件_5.1.17_20241007
+https://share.feijipan.com/s/YIDYCFl9
+
 ## (X)
 小脑斧TV_5_0_44_内置小脑斧线路_直播+点播
 https://share.feijipan.com/s/scDGnZoZ
@@ -504,6 +518,9 @@ https://share.feijipan.com/s/4GDXjxOU
 讯飞输入法_小米15定制版_8_1_8198
 https://share.feijipan.com/s/oqDXjwtc
 
+VLC_3.5.7
+https://share.feijipan.com/s/JbDYBhrc
+
 ## (Y)
 易拓客源_2_7_8_0_解锁会员版
 https://share.feijipan.com/s/tIDGncoD
@@ -526,7 +543,11 @@ YVideo_Downloader_1_0_17_3多功能下载工具https://share.feijipan.com/s/0xDN
 
 用声音写_4_4_1_语音转文字_解锁内购版https://share.feijipan.com/s/dsDNcv6T
 
-无痛单词_2_1_0_解锁会员版https://share.feijipan.com/s/dsDNcv6T
+音乐播放器_3.2.1.157(157)
+https://share.feijipan.com/s/ncDYCbyg
+
+夜间模式_4.16.0
+https://share.feijipan.com/s/iRDYCBx8
 
 ## (Z)
 指南针_1.14.5纯净版https://share.feijipan.com/s/5qDHZjLs
@@ -542,7 +563,7 @@ https://share.feijipan.com/s/ZSDXjfDI
 ## 数字开头的
 123下载辅助第三代https://share.feijipan.com/s/ZGD0zP6l
 
-360ai搜索v4.2.2多功能智能Ai软件https://share.feijipan.com/s/rTDNbded
+360ai搜索v4.2.2多功能智能Ai软件https://share.feijipan.com/s/BQDYC1jb
 
 521影视TV 1.4.1 内置线路
 https://share.feijipan.com/s/6rDGnhi0
