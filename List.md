@@ -19,6 +19,9 @@ https://share.feijipan.com/s/31DYB48U
 Adobe_Photoshop_Express_照片编辑_16_2_245_build_1910_解锁高级版
 https://share.feijipan.com/s/XSDGlEg0
 
+Ask AI_2.5.6
+https://share.feijipan.com/s/5ADfTqEr
+
 爱尚直播_6_6_6_央视+卫视+全球
 https://share.feijipan.com/s/G8DGlUeo
 
@@ -71,6 +74,9 @@ https://share.feijipan.com/s/2mDXvBqt
 ## (C)
 Clash.Verge_1.7.5_x64
 https://share.feijipan.com/s/v8DGkLYX
+
+Camellia_0.2.6
+https://share.feijipan.com/s/vYDfTxFl
 
 春盈天下_6_6_5_内置线路_直播+点播
 https://share.feijipan.com/s/w5DGkSun
@@ -151,6 +157,9 @@ https://share.feijipan.com/s/cKDXjAzM
 ## (G)
 GreenTuber第三方油管AP0.1.5.3
 https://share.feijipan.com/s/TcDHU0NI
+
+Gmail临时邮箱生成_Inboxes_1.2.3
+https://share.feijipan.com/s/Q3DfTmtG
 
 光速写作 2.0.5 专注AI写作海量素材库
 https://share.feijipan.com/s/MpD0xzko
